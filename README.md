@@ -1,3 +1,3 @@
-The play with machine makes you more excitement.
+Playing with machine makes you more excitement.
 
 Just for fun!
